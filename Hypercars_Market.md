@@ -18,7 +18,7 @@ But these cars aren’t just about specs. They represent the pinnacle of automot
 
 ## Hypercars Market Outlook 2035
 
-The global (**hypercars industry**)[https://www.transparencymarketresearch.com/hypercar-market.html] was valued at US$ 7.6 billion in 2024. It is estimated to grow at a CAGR of 9.4% from 2025 to 2035, reaching US$ 18.7 billion by the end of 2035.
+The global [**hypercars industry**](https://www.transparencymarketresearch.com/hypercar-market.html) was valued at US$ 7.6 billion in 2024. It is estimated to grow at a CAGR of 9.4% from 2025 to 2035, reaching US$ 18.7 billion by the end of 2035.
 
 This robust growth isn’t driven by mass adoption—hypercars will never be mainstream. Instead, it's powered by expanding ultra-high-net-worth populations, advancements in EV performance, and the growing popularity of automotive collectibles.
 
@@ -38,7 +38,7 @@ So why is the market for hypercars growing at such a strong clip? Let’s take a
 4. **Brand Halo Effect**  
    For car manufacturers, a hypercar serves as a “halo” product. It draws attention to the brand and boosts overall desirability—even for more mainstream offerings. Think of the Bugatti Chiron lifting the entire VW Group’s luxury image.
 
-[Request for Sample Copy of the report](https://www.transparencymarketresearch.com/sample/sample.php?flag=S&rep_id=34724)
+**Request for Sample Copy of the report** - [https://www.transparencymarketresearch.com/sample/sample.php?flag=S&rep_id=34724](https://www.transparencymarketresearch.com/sample/sample.php?flag=S&rep_id=34724)
 
 ## Shaping the Future: Trends to Watch
 
